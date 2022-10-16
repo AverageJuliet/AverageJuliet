@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning random ass shit in school 
 - 💞️ I’m looking to collaborate on random stuff in my free time
 - 📫 How to reach me 
-- 1.you can reach me via my twitter or my discord accouts 
+- you can reach me via my twitter or my discord accouts 
 - 1.Juliet#6403
 - 2.heavytf2#2826
 
