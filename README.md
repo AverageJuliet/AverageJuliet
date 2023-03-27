@@ -5,7 +5,7 @@
 - 📫 How to reach me 
 - you can reach me via my twitter or my discord accouts 
 - 1.Juliet#6403
-- 2.heavytf2#2826
+- 2.average juliet#2826
 
 <!---
 minecraft420github12123/minecraft420github12123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
