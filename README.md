@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @minecraft420github12123
+- 👋 Hi, I’m AverageJuliet
 - 👀 I’m interested in all things tech and coding 
 - 🌱 I’m currently learning random ass shit in school 
 - 💞️ I’m looking to collaborate on random stuff in my free time
